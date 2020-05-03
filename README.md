@@ -1,1 +1,1 @@
-# darking-nitro-bot
+# Darking Kralına Abone Olduğunuz İçin Teşekkür Ederim 
